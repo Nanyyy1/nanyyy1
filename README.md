@@ -1,9 +1,16 @@
-### Hi there 👋
+### Hi gorgeous👋
+✨-**Naiany Menezes Silva**
+✨-15y
+✨-naianymenezes@gmail.com
+🇧🇷
+**I lIKE...**
+✨-I like play video games🎮
+✨-i like listen music 🎵
+✨-i really like catss 🐈‍⬛
 
 
-**Nanyyy1/nanyyy1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+
 
 
 
